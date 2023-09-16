@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @naponik21h erthetrh rte
 - 👀 I’m interested in ... nngngngf 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... 626254
 - 💞️ I’m looking to collaborate on ...hfgliu  twerg trgert thrthrte
 - 📫 How to reach me ... franks 01н теуy  ergewwgrgtrh tregtrgrt 6456tryrt7 564g wttt yrtyrety e
 grt rtyifefed tyj k yu y4wrt krtyrtykr y
